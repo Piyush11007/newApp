@@ -1,4 +1,4 @@
 # newApp
-something branded
+SOMETHING BRANDED FOR YOU 
 
-these app can make something great and i will be makinh it at the end of octobur, stay tuned!!!
+This App Can Make Something Great & I Will Be Making It At The End Of Octobur, Stay Tuned With Me!!!
